@@ -3,6 +3,7 @@
 ## 1️⃣ Introdução ao Idioma Japonês e ao Alfabeto  
 🔹 Aprenda sobre os sistemas de escrita e os primeiros passos na língua japonesa.  
 
+- [APRENDA HIRAGANA EM UMA SEMANA](https://www.youtube.com/watch?v=DnmayTs3VJo)  
 - [HIRAGANA ひらがな](https://www.youtube.com/playlist?list=PLAF103AF88AD2E07D)  
 - [HIRAGANA, KATAKANA - Alfabeto japonês](https://www.youtube.com/playlist?list=PLJbVyB8ZooEvNX4H2qMC_OoSRXr1UnAxC)  
 - [Alfabeto em japonês Hiragana](https://www.youtube.com/playlist?list=PL7VMwU6chXIlIKkDMAGIk4DcpKESBvnnF)  
