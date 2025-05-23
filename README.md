@@ -7,8 +7,7 @@
 - [HIRAGANA ひらがな](https://www.youtube.com/playlist?list=PLAF103AF88AD2E07D)  
 - [HIRAGANA, KATAKANA - Alfabeto japonês](https://www.youtube.com/playlist?list=PLJbVyB8ZooEvNX4H2qMC_OoSRXr1UnAxC)  
 - [Alfabeto em japonês Hiragana](https://www.youtube.com/playlist?list=PL7VMwU6chXIlIKkDMAGIk4DcpKESBvnnF)  
-- [〖HIRAGANA〗100 READING CHALLENGE TEST](https://www.youtube.com/playlist?list=PL1ysjpDVFwo-wDgm4YvEy-Vk2OzEmC3Ex)   
-- [〖KATAKANA〗100 READING CHALLENGE TEST](https://www.youtube.com/playlist?list=PL1ysjpDVFwo9O7klkKMM5OJKAiNjlY6wo) 
+- [hiragana reading test](https://www.youtube.com/playlist?list=PLq22iUorhLkLSwwkI4Ti9SLKOMMssGa_V)   
 
 ---
 
