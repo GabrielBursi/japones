@@ -32,6 +32,7 @@
 * [〖ABSOLUTE BEGINNER〗BASIC JAPANESE](https://www.youtube.com/playlist?list=PL1ysjpDVFwo_-5N5lW8IboIpuKx5RjsTD)
 * [Kanji Corner](https://www.youtube.com/playlist?list=PL99AD27DBA8048784)
 * [Learn Japanese with Children's Books](https://www.youtube.com/playlist?list=PLPSfPyOOcp3TLsq5J9HYOmjIyVYhsbtSB)
+* [Speaking](https://www.youtube.com/playlist?list=PLkK7KO2TnEcw0F0_wET4gMajBelS_Canc)  
 
 ---
 
@@ -43,10 +44,7 @@
 * [Japanese Grammar Structure - What the textbooks don't teach](https://www.youtube.com/playlist?list=PLg9uYxuZf8x9KjPQykE6c_fv4DXg8pfX0)
 * [Learn Japanese Grammar](https://www.youtube.com/playlist?list=PLg9uYxuZf8x9KjPQykE6c_fv4DXg8pfX0)
 * [Learn ALL Japanese Particles with the Ultimate Japanese Particles Guide series](https://www.youtube.com/playlist?list=PLPSfPyOOcp3RpOSzr_HDZRTx9O1JE8XiJ)
-* [Japanese Grammar](https://www.youtube.com/playlist?list=PLkK7KO2TnEczxju5vDseCyQN17z3F9uMP)
-
-### Adicionais de Gramática Avançada e JLPT
-
+* [Japanese Grammar](https://www.youtube.com/playlist?list=PLkK7KO2TnEczSagz4fQKP0lM9X9jyHO6L)
 * [PARTÍCULAS 助詞](https://www.youtube.com/playlist?list=PLj2S9Dnl4H5XrqFygSMg8Gakfw9F0E7qX)
 * [Particles](https://www.youtube.com/playlist?list=PLw3jPCzGhgBPA89QNUx8jY0oLa2FZYhbz)
 * [VERBOS EM JAPONÊS](https://www.youtube.com/playlist?list=PLj2S9Dnl4H5WA-qnBXwPowUxWymlA49FI)
@@ -66,8 +64,7 @@
 * [〖ANIMATION〗VOCABULARY BUILDER](https://www.youtube.com/playlist?list=PL1ysjpDVFwo8zoU71m5xN3dHQxdFDTtAU)
 * [〖VOCABULARY｜ENGLISH→JAPANESE〗100 JAPANESE VOCABULARY TEST](https://www.youtube.com/playlist?list=PL1ysjpDVFwo9Omihbmp_jmxaL7p0ceI8s)
 * [Vocabulário N5](https://www.youtube.com/playlist?list=PLj2S9Dnl4H5WFmUL7nE_b3gh_b8QnAH1Y)
-* [Japanese Vocabulary](https://www.youtube.com/playlist?list=PLkK7KO2TnEcy6RkF9712MHrd8bzQklnsg)
-* [Japanese Vocabulary Test](https://www.youtube.com/playlist?list=PLA98ViesSMFSUs9b-TsCKmlTSBORE_xI5)
+* [Japanese Vocabulary](https://www.youtube.com/playlist?list=PLkK7KO2TnEcyhzj-NMzOAyYEJgGTZPKPh)  
 
 ---
 
@@ -78,7 +75,7 @@
 * [Aulas de Kanji](https://www.youtube.com/playlist?list=PLDCpxjz4FSAo7gWbZNcV1Zu_t3-9lWoWp)
 * [Vamos ler KANJI](https://www.youtube.com/playlist?list=PL47hZ7Mbf5BnVA1YaXzheACaCQNgCj5sN)
 * [Kanji N5 - 100 Kanjis](https://www.youtube.com/playlist?list=PL47hZ7Mbf5Bl-qXLXEraRCgEgZTCH4L6v)
-* [〖KANJI〗READING CHALLENGE TEST](https://www.youtube.com/playlist?list=PL1ysjpDVFwo_5fbMStgpTz8J3ilNTJ1hU)
+* [〖KANJI〗READING CHALLENGE TEST](https://www.youtube.com/playlist?list=PLkK7KO2TnEcwVgY_Wq0zjVDFv7adZSj94)
 * [KANJI 漢字](https://www.youtube.com/playlist?list=PLj2S9Dnl4H5Ufhbaj9YG1Tjh8VH9BC4lk)
 * [Kanji Practice](https://www.youtube.com/playlist?list=PLkK7KO2TnEcwVgY_Wq0zjVDFv7adZSj94)
 * [Flash Cards](https://www.youtube.com/playlist?list=PLkK7KO2TnEcyCH8qkCyhOLLwRpLeKun4A)
@@ -91,8 +88,8 @@
 
 * [Japanese Listening Practice With A Story!](https://www.youtube.com/playlist?list=PLw3Y8B8LnOzL0EPSEoCHjv0DxanN4_3xw)
 * [全ての動画を聞き流しながら勉強／Listen and study in all videos.](https://www.youtube.com/playlist?list=PLlBlUkMqs8_o0Fzx-ZIYeYrhxn7xo5Dld)
-* [Japanese Listening Practice](https://www.youtube.com/playlist?list=PLC88PAf8Ce7lqRslPigE3FY6ru6biqA6T)
-* [Listening Practice](https://www.youtube.com/playlist?list=PLw3jPCzGhgBO7-IgnhVYJe7qlzzis80dP)
+* [Japanese Listening Practice](https://www.youtube.com/playlist?list=PLkK7KO2TnEcyhzj-NMzOAyYEJgGTZPKPh)
+* [Listening Practice](https://www.youtube.com/playlist?list=PLw3jPCzGhgBO7-IgnhVYJe7qlzzis80d)
 * [Japanese Listening Practice](https://www.youtube.com/playlist?list=PLkK7KO2TnEcyhzj-NMzOAyYEJgGTZPKPh)
 
 ---
