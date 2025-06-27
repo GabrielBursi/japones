@@ -5,15 +5,14 @@
 🔹 Aprenda sobre os sistemas de escrita e os primeiros passos na língua japonesa.
 
 * [APRENDA HIRAGANA EM UMA SEMANA](https://www.youtube.com/watch?v=DnmayTs3VJo)
+* [KATAKANA カタカナ](https://www.youtube.com/playlist?list=PL5032B2BE1CD0F7E1)
 * [Hiragana Lessons](https://www.youtube.com/playlist?list=PLw3jPCzGhgBNFn5u5vZ6y0oTdhesaugPi)
-* [HIRAGANA ひらがな](https://www.youtube.com/playlist?list=PLAF103AF88AD2E07D)
-* [HIRAGANA, KATAKANA - Alfabeto japonês](https://www.youtube.com/playlist?list=PLJbVyB8ZooEvNX4H2qMC_OoSRXr1UnAxC)
-* [Alfabeto em japonês Hiragana](https://www.youtube.com/playlist?list=PL7VMwU6chXIlIKkDMAGIk4DcpKESBvnnF)
+* [Katakana Lessons](https://www.youtube.com/playlist?list=PLw3jPCzGhgBPDc0a2k7OaJvsS_WvMiV6b)
 * [hiragana reading test](https://www.youtube.com/playlist?list=PLq22iUorhLkLSwwkI4Ti9SLKOMMssGa_V)
-* [Katakana Lessons](https://www.youtube.com/playlist?list=PLq22iUorhLkLSwwkI4Ti9SLKOMMssGa_V)
-* [Learn Hiragana and Katakana](https://www.youtube.com/playlist?list=PLA7DB863D6946E1CD)
 * [KATAKANA READING TEST](https://www.youtube.com/playlist?list=PLA98ViesSMFTL5NZBeqiQApNEVaOi91dy)
 * [HIRAGANA READING TEST](https://www.youtube.com/playlist?list=PLA98ViesSMFRB14EAHcKPPmLFefXgisAp)
+* [Katakana Writing](https://www.youtube.com/playlist?list=PLUzn8CWxCrdBPGsV1tnWcEdYuWedxuDgd)
+* [Hiragana ＆ Katakana Writing and Reading](https://www.youtube.com/playlist?list=PLVGw_A21plC4pxEbXC3Sv_9N6NizqxM3M)
 
 ---
 
