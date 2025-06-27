@@ -4,7 +4,7 @@
 
 🔹 Aprenda sobre os sistemas de escrita e os primeiros passos na língua japonesa.
 
-* [APRENDA HIRAGANA EM UMA SEMANA](https://www.youtube.com/watch?v=DnmayTs3VJo)
+* [aulasdejapones](https://www.aulasdejapones.com.br)
 * [KATAKANA カタカナ](https://www.youtube.com/playlist?list=PL5032B2BE1CD0F7E1)
 * [Hiragana Lessons](https://www.youtube.com/playlist?list=PLw3jPCzGhgBNFn5u5vZ6y0oTdhesaugPi)
 * [Katakana Lessons](https://www.youtube.com/playlist?list=PLw3jPCzGhgBPDc0a2k7OaJvsS_WvMiV6b)
